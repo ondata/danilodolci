@@ -1,3 +1,9 @@
+# Cosa è
+Un sito per sostenere la campagna [**#tivoglioBene**](http://danilodolci.confiscatibene.it/), che ha come obiettivo fare in modo che un bene sequestrato alla mafia possa essere uno dei luoghi di "Beni Confiscati: Architettura, Ideologia e Performance". Questa è un'iniziativa che vuole avviare processi di **attivazione e riappropriazione di un bene confiscato**, attraverso pratiche musicali e performative, con il **coinvolgimento della comunità locale**.
+
+Tra i protagonisti di questa campagna le ragazze e i ragazzi del **Liceo Danilo Dolci** (che ringraziamo molto).
+
+Sito: [http://danilodolci.confiscatibene.it/](http://danilodolci.confiscatibene.it/)
 
 
 ### La grafica di questo progetto è basata su:
