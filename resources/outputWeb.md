@@ -1,3 +1,14 @@
+Dal **16 giugno** al **4 novembre 2018**, il progetto "**Beni Confiscati: Architettura, Ideologia e Performance**" avvierà processi di **attivazione** e **riappropriazione** di un **bene confiscato** attraverso pratiche musicali e performative, con il **coinvolgimento della comunità locale**.
+​ ​
+Per questo evento, il collettivo di musicisti **The Great Learning Orchestra** (Stoccolma) ha lavorato a un calendario di **performance destinate al quartiere di Brancaccio**. 
+
+A partire da marzo 2017, una serie di eventi preliminari ha preceduto e accompagnato il progetto. Tra questi, il workshop su Open Data e monitoraggio civico, a cura di Andrea Borruso / [Confiscati Bene](http://www.confiscatibene.it/it) (15-20 marzo 2018), ha invitato un gruppo di circa **venti studenti del Liceo "Danilo Dolci"**, coordinati dal docente **Ferdinando Siringo**, a lavorare a un caso di monitoraggio civico con l'utilizzo di strumenti digitali per la ricerca sul territorio.
+
+La ricerca degli studenti produrrà una **campagna di comunicazione** e una **lettera aperta** ([qui](./index.html#richiesta) a seguire) alle autorità, per l'accesso e il riutilizzo di un bene confiscato antistante l'istituto scolastico, chiuso da quasi vent'anni.
+
+"Beni Confiscati: Architettura, Ideologia e Performance", a cura di [**Valentina Sansone**](https://twitter.com/valentinasns), affronta il tema dei beni confiscati in relazione alla storia della città, ai protagonisti della controcultura, delle organizzazioni e dei gruppi autogestiti a Palermo negli ultimi 40 anni.​
+ 
+
 <div align="right">
 
 Professore **Leoluca Orlando**, Sindaco della città di Palermo ([sindaco@comune.palermo.it](mailto:sindaco@comune.palermo.it))<br>
